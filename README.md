@@ -29,5 +29,4 @@ Cleaning shoes is an essential skill to have in the 21st century.
 6. Apply additional spot treatment with dish soap where needed
 7. Insert bunches of newspaper into the inside of shoes
 8. Let shoes dry
-![dry](dry.jpg)
-10. Relace your shoes
+9. Relace your shoes
