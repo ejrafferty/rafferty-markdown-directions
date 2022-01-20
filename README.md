@@ -1,1 +1,0 @@
-# rafferty-markdown-directions
