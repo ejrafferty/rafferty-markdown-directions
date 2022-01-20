@@ -1,5 +1,7 @@
 # How to clean shoes
 
+![shoe](shoe.jpeg)
+
 Cleaning shoes is an essential skill to have in the 21st century.
 
 # Warning! Not correctly following the steps could lead to destruction of shoes.
