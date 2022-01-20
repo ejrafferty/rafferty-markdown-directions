@@ -22,6 +22,8 @@ Cleaning shoes is an essential skill to have in the 21st century.
 
 > Scrub frimly and thoroughly to ensure best results
 
+![clean](clean.jpg)
+
 4. Dip the toothbrush into the soap mixture
 5. Utilize the bristles on the brush to lightly clean the fabric of the shoes
 6. Apply additional spot treatment with dish soap where needed
