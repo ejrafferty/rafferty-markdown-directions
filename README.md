@@ -21,7 +21,7 @@ Maintaining a polished and professional image requires knowledge of how to clean
 3. Dip the towel into the mixture 
 4. Scrub the bottom lip of the shoes
 
->     Scrub frimly and thoroughly to ensure best results
+ - Scrub firmly and thoroughly to ensure best results
 
 ![clean](clean.jpeg)
 
