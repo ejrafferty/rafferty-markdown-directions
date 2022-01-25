@@ -19,9 +19,9 @@ Maintaining a polished and professional image requires knowledge of how to clean
 1. Remove the laces from your shoes
 2. Mix one cup of water with dish soap
 3. Dip the towel into the mixture 
-4. scrub the bottom lip of the shoes
+4. Scrub the bottom lip of the shoes
 
-> Scrub frimly and thoroughly to ensure best results
+>     Scrub frimly and thoroughly to ensure best results
 
 ![clean](clean.jpeg)
 
