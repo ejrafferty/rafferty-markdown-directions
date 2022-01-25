@@ -2,7 +2,7 @@
 
 ![shoe](shoe.jpeg)
 
-Cleaning shoes is an essential skill to have in the 21st century.
+Maintaining a polished and professional image requires knowledge of how to clean one's shoes.
 
 # Warning! Not correctly following the steps could lead to destruction of shoes.
 ### Required Materials
